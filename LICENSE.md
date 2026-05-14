@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with grid trading bot for futures custom Automation | isolated-margin & stop-loss, the #1 grid trading bot for futures. Includes isolated-margin and stop-loss
 
 
 
